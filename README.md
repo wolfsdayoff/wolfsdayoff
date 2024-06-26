@@ -1,7 +1,13 @@
-<p align="center">hai *gives you fleas*
-<br/><br/><br/>
-<img src="https://media.discordapp.net/attachments/983098354785476711/1250180058514063390/LXV8R6J.png?ex=667d1e29&is=667bcca9&hm=560482b06eae63344880ba27fdfb5c24c88f705d0ea22d7f03487be4895ddcbf&=&format=webp&quality=lossless&width=701&height=556" width="230" height="150" border="10"/>
-
+<p align="center">CAN I COME IN?
+<br/>
+<p align="center">
+<img src="https://i.pinimg.com/736x/70/b4/5b/70b45b6ec8d4a170e2a0764cf388cb4f.jpg" width="300" height="170" border="10"/>
+  
+<br/>
+  
+<p align="center">
+<img src="https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif" width="900" height="40" border="10"/>
+  
 i don't want to bother making this look nice because this is a ponytown specific page :P my main info page is [here](https://w0lf.straw.page).
 if you whisper to me i MAY not get back to you so feel free to leave something on my retrospring.
 *i come across as blunt a lot so i wouldn't recommend interacting if you're sensitive
@@ -9,14 +15,9 @@ or anything, i'm not out to get you lol.. if i was being mean on purpose you'd k
 just ask if you're not sure.
 
 there is no TLDR. vibes only. my accounts are on my strawpage directory.
-
-<br/><br/><br/>
-
-<p align="center">
-<img src="https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif" width="900" height="40" border="10"/>
-</p>
-
-<br/><br/><br/>
+<br/>
+<p align="left">
+<img src="https://enchantments.carrd.co/assets/images/gallery20/da85e56d.gif?v=976bb919" width="40" height="55" border="10"/>
 
 i have a lot of worms in my brain and medically diagnosed disorders/illnesses. in case it wasn't already obvious..!
 whatever avatar i am may or may not indicate whoever is fronting but it doesn't really matter unless you want to be buddies.
