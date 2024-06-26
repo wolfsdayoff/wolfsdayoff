@@ -18,7 +18,7 @@ there is no TLDR. vibes only. my accounts are on my strawpage directory.
 
 <br/><br/><br/>
 
-none of the disorders i have are self diagnosed.
+i have a lot of worms in my brain and medically diagnosed disorders/illnesses. in case it wasn't already obvious..!
 whatever avatar i am may or may not indicate whoever is fronting but it doesn't really matter unless you want to be buddies.
 feel free to add me on discord if that's the case! it's wolfsdayoff.
 
