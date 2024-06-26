@@ -1,16 +1,38 @@
-## Hi there 👋
+<p align="center">hai *gives you fleas*
+<br/><br/><br/>
+<img src="https://media.discordapp.net/attachments/983098354785476711/1250180058514063390/LXV8R6J.png?ex=667d1e29&is=667bcca9&hm=560482b06eae63344880ba27fdfb5c24c88f705d0ea22d7f03487be4895ddcbf&=&format=webp&quality=lossless&width=701&height=556" width="230" height="150" border="10"/>
 
-<!--
-**wolfsdayoff/wolfsdayoff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+i don't want to bother making this look nice because this is a ponytown specific page :P my main info page is [here](https://w0lf.straw.page).
+if you whisper to me i MAY not get back to you so feel free to leave something on my retrospring.
+*i come across as blunt a lot so i wouldn't recommend interacting if you're sensitive
+or anything, i'm not out to get you lol.. if i was being mean on purpose you'd know anyway.
+just ask if you're not sure.
 
-Here are some ideas to get you started:
+there is no TLDR. vibes only. my accounts are on my strawpage directory.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br/><br/><br/>
+
+<p align="center">
+<img src="https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif" width="900" height="40" border="10"/>
+</p>
+
+<br/><br/><br/>
+
+none of the disorders i have are self diagnosed.
+whatever avatar i am may or may not indicate whoever is fronting but it doesn't really matter unless you want to be buddies.
+feel free to add me on discord if that's the case! it's wolfsdayoff.
+
+you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance. character(s) i'm sitting with DOESN'T MEAN SHIPS! i've always been guard dog privilege for my friends and i am possessive of them but not in the gross toxic way aehehehee. if i have you added and see you online i'll probably come sit with you, but i rarely engage in conversation if we aren't close. that doesn't mean i don't want to talk to you, though! i love having a chat. in public spaces such as ponytown, discord servers and the sort i'm mostly SEMIVERBAL!
+feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
+
+my main special interests are the legend of zelda, minecraft, and twenty one pilots. i've lived and breathed these things since i was a kid so i love talking about them/engaging with said things. my other interests are listed on my strawpage but they vary! keep in mind i DON'T participate in 'fandom' spaces anymore, including others who are actively in 'fandoms.' i'm old and the state of spaces on the internet has gone downhill rapidly. but if you're a freak about things in your own special way then i'd love to vibe.
+
+things i really like doing and sharing are writing/roleplaying and art yay ...
+
+i don't necessarily have a dni because i hide/block a LOT of people but if you're someone who is really into 'cancelling' or 'calling out' and shit i don't want anything to do with you. also, i don't encourage delusions/psychosis in any shape or form so people with 'irl' and of the sort i tend to avoid. i don't talk to self diagnosers. and if you think portraying yourself as edgy/liking dark fiction makes someone automatically evil, you're weird.
+if we're talking already and i realize we won't get along i'll just let you know and unadd you. if you get mad at this then you need to sort your priorities.
+if you've read all of this you get a gift \*hands you a slightly soggy cheeto*
+
+![image](https://adriansblinkiecollection.neocities.org/a11.gif) ![image](https://adriansblinkiecollection.neocities.org/a31.gif) ![image](https://adriansblinkiecollection.neocities.org/a31.gif) ![image](https://adriansblinkiecollection.neocities.org/d28.gif) ![image](https://adriansblinkiecollection.neocities.org/d55.gif) ![image](https://adriansblinkiecollection.neocities.org/v26.gif) ![image](https://adriansblinkiecollection.neocities.org/f10.gif) ![image](https://adriansblinkiecollection.neocities.org/k9.gif) ![image](https://adriansblinkiecollection.neocities.org/24.gif) ![image](https://y2k.neocities.org/blinkiez/tumblr_pc38rqsNC61u4h28eo9_250.gif) ![image](https://64.media.tumblr.com/95dada123b36c1ea217aefa70e847b28/tumblr_pgvansSFu11sy5bqd_250.gifv) 
+
+![image](https://adriansblinkiecollection.neocities.org/stamps/d41.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/e59.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/a22.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/i9.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/f19.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/i11.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/d10.png) 
