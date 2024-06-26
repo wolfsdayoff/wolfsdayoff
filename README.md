@@ -1,12 +1,14 @@
-<p align="center">CAN I COME IN?
-<br/>
+<p align="center">so beautiful, the space between
+
 <p align="center">
-<img src="https://i.pinimg.com/736x/70/b4/5b/70b45b6ec8d4a170e2a0764cf388cb4f.jpg" width="300" height="170" border="10"/>
-  
+<img src="https://i.imgur.com/t4ksVXn.png" width="210" height="320" border="10"/>
+
+<p align="center">a painful reminder and a terrible dream.
+
+------
+
 <br/>
-  
-<p align="center">
-<img src="https://adriansblinkiecollection.neocities.org/dividers/blooddivider.gif" width="900" height="40" border="10"/>
+
   
 i don't want to bother making this look nice because this is a ponytown specific page :P my main info page is [here](https://w0lf.straw.page).
 if you whisper to me i MAY not get back to you so feel free to leave something on my retrospring.
