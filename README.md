@@ -1,7 +1,7 @@
 <p align="center">so beautiful, the space between
 
 <p align="center">
-<img src="https://i.imgur.com/t4ksVXn.png" width="210" height="320" border="10"/>
+<img src="https://i.imgur.com/t4ksVXn.png" width="210" height="340" border="10"/>
 
 <p align="center">a painful reminder and a terrible dream.
 
