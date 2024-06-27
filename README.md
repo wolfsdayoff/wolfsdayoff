@@ -27,6 +27,7 @@ feel free to add me on discord if that's the case! it's wolfsdayoff.
 
 you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance. character(s) i'm sitting with DOESN'T MEAN SHIPS! i've always been guard dog privilege for my friends and i am possessive of them but not in the gross toxic way aehehehee. if i have you added and see you online i'll probably come sit with you, but i rarely engage in conversation if we aren't close. that doesn't mean i don't want to talk to you, though! i love having a chat. in public spaces such as ponytown, discord servers and the sort i'm mostly SEMIVERBAL!
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
+
 if you have 'dni' in your name i'm DEFINITELY laughing at you. you can log off, yanno?
 
 my main special interests are the legend of zelda, minecraft, and twenty one pilots. i've lived and breathed these things since i was a kid so i love talking about them/engaging with said things. my other interests are listed on my strawpage but they vary! keep in mind i DON'T participate in 'fandom' spaces anymore, including others who are actively in 'fandoms.' i'm old and the state of spaces on the internet has gone downhill rapidly. but if you're a freak about things in your own special way then i'd love to vibe.
