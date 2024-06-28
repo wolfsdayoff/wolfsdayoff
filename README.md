@@ -9,7 +9,9 @@
 
 <br/>
 
-  
+
+hi.. i talk a LOT when i write stuff like this so...
+
 i don't want to bother making this look nice because this is a ponytown specific page :P my main info page is [here](https://w0lf.straw.page).
 if you whisper to me i MAY not get back to you so feel free to leave something on my retrospring.
 *i come across as blunt a lot so i wouldn't recommend interacting if you're sensitive
