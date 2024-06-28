@@ -25,7 +25,7 @@ i have a lot of worms in my brain and medically diagnosed disorders/illnesses. i
 whatever avatar i am may or may not indicate whoever is fronting but it doesn't really matter unless you want to be buddies.
 feel free to add me on discord if that's the case! it's wolfsdayoff.
 
-you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance. character(s) i'm sitting with DOESN'T MEAN SHIPS! i've always been guard dog privilege for my friends and i am possessive of them but not in the gross toxic way aehehehee. if i have you added and see you online i'll probably come sit with you, but i rarely engage in conversation if we aren't close. that doesn't mean i don't want to talk to you, though! i love having a chat. in public spaces such as ponytown, discord servers and the sort i'm mostly SEMIVERBAL!
+you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance or two siblings. character(s) i'm sitting with DOESN'T MEAN SHIPS! if i have you added and see you online i'll probably come sit with you, but i rarely engage in conversation if we aren't close. that doesn't mean i don't want to talk to you, though! i love having a chat. in public spaces such as ponytown, discord servers and the sort i'm mostly SEMIVERBAL!
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 
 if you have 'dni' in your name i'm DEFINITELY laughing at you. you can log off, yanno?
