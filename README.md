@@ -17,6 +17,9 @@ or anything, i'm not out to get you lol.. if i was being mean on purpose you'd k
 just ask if you're not sure.
 
 there is no TLDR. vibes only. my accounts are on my strawpage directory.
+if we're strangers and you don't like me, or you don't like something i'm doing, i don't care.
+any comments made will be ignored. you literally do not matter to me. a lot of you should learn
+how to have this mindset.
 <br/>
 <p align="left">
 <img src="https://enchantments.carrd.co/assets/images/gallery20/da85e56d.gif?v=976bb919" width="40" height="55" border="10"/>
