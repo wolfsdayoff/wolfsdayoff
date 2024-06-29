@@ -13,7 +13,7 @@
 hi.. i talk a LOT when i write stuff like this so...
 
 i don't want to bother making this look nice because this is a ponytown specific page :P my main info page is [here](https://w0lf.straw.page).
-if you whisper to me i MAY not get back to you so feel free to leave something on my retrospring.
+if you whisper to me i MAY not get back to you so feel free to leave something on my guestbook.
 *i come across as blunt a lot so i wouldn't recommend interacting if you're sensitive
 or anything, i'm not out to get you lol.. if i was being mean on purpose you'd know anyway.
 just ask if you're not sure.
