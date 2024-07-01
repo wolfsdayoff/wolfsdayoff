@@ -26,6 +26,7 @@ PONYTOWN DNI: i don't care who interacts as this is mostly just a 'DON'T ASK TO 
 * 'fiction doesn't effect reality' people
 * people that sexualize and water down characters
 * delusional/'irls' (i'm just not the right person to be around if you deal with that)
+* you think liking edgy things automatically makes you an evil person
 <br/>
 
 ------
