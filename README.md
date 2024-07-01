@@ -36,7 +36,7 @@ PONYTOWN DNI: i don't care who interacts as this is mostly just a 'DON'T ASK TO 
 
 i have a lot of worms in my brain and medically diagnosed disorders/illnesses. in case it wasn't already obvious..!
 whatever avatar i am may or may not indicate whoever is fronting but it doesn't really matter unless you want to be buddies.
-feel free to add me on discord if that's the case! it's wolfsdayoff.
+feel free to add me on discord if that's the case! just ask me beforehand so i know who is adding me!
 
 you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance or two siblings. character(s) i'm sitting with DOESN'T MEAN SHIPS! if i have you added and see you online i'll probably come sit with you, but i rarely engage in conversation if we aren't close. that doesn't mean i don't want to talk to you, though! i love having a chat. in public spaces such as ponytown, discord servers and the sort i'm mostly SEMIVERBAL!
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
