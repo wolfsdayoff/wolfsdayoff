@@ -25,6 +25,7 @@ PONYTOWN DNI: i pretty much just ignore people i don't want anything to do with,
 * self diagnosers
 * 'fiction doesn't effect reality' people
 * people that sexualize and water down characters
+* delusional/'irls' (i'm just not the type of person to be around if you deal with that)
 <br/>
 
 ------
