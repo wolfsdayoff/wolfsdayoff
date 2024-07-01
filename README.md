@@ -16,7 +16,7 @@ if you whisper to me i MAY not get back to you so feel free to leave something o
 there is no TLDR. vibes only. my accounts are on my strawpage directory.
 <br/>
 
-PONYTOWN DNI: i pretty much just ignore people i don't want anything to do with, but here's what i make efforts to avoid. if we're talking already and i realize we won't get along i'll just let you know and unadd you. if you get mad at this then you need to sort your priorities. if you don't like me or something i did/said, i don't care. you don't matter to me. if it was a genuine mistake of morality, i will fix it, and improve, as i make mistakes and have unmedicated disorders. a lot of you need to learn how to have this mindset.
+PONYTOWN DNI: i pretty much just ignore people i don't want anything to do with, but here's what i make efforts to avoid. if we're talking already and i realize we won't get along i'll just let you know and unadd you. if you get mad at this then you need to sort your priorities. if you don't like me or something i did/said, i don't care. you don't matter to me. if it was a genuine mistake of morality, i will fix it, and improve, as i make errors and have unmedicated disorders. a lot of you need to learn how to have this mindset.
 * MINORS! HOW MANY TIMES DO I NEED TO SAY THIS BRO...
 * sensitive people
 * drama seekers including 'cancel culture/callout' folk
