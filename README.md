@@ -30,7 +30,7 @@ my accounts are on my strawpage directory.
 * delusional/'irls' (i'm just not the right person to be around if you deal with that)
 * you think liking edgy things automatically makes you an evil person
 <br/>
-<br/>
+
 [kin list for the lols](https://wolfkins.straw.page)
 
 ------
