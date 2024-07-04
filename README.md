@@ -9,14 +9,16 @@
 
 <br/>
 
-hi.. i talk a LOT when i write stuff like this so...
-
-i don't want to bother making this look nice because this is a ponytown specific page :P my main info page is [here](https://w0lf.straw.page).
+this is a ponytown specific page, my main info page is [here](https://w0lf.straw.page).
+<br/>
 if you whisper to me i MAY not get back to you so feel free to leave something on my guestbook.
-there is no TLDR. vibes only. my accounts are on my strawpage directory.
+<br/>
+my accounts are on my strawpage directory.
+<br/>
 <br/>
 
-PONYTOWN DNI: i don't care who interacts as this is mostly just a 'DON'T ASK TO BE FRIENDS IF' thing. pretty much just ignore people i don't want anything to do with, but here's what i make efforts to avoid. if we're talking already and i realize we won't get along i'll just let you know and unadd you. if you get mad at this then you need to sort your priorities. if you don't like me or something i did/said, i don't care. you don't matter to me. if it was a genuine mistake of morality, i will fix it, and improve, as i make errors and have unmedicated disorders. a lot of you need to learn how to have this mindset.
+
+☣ **ponytown specific 'don't ask to be friends if' list because at the end of the day i block freely anyway.**
 * MINORS! HOW MANY TIMES DO I NEED TO SAY THIS BRO...
 * sensitive people
 * drama seekers including 'cancel culture/callout' folk
@@ -28,6 +30,8 @@ PONYTOWN DNI: i don't care who interacts as this is mostly just a 'DON'T ASK TO 
 * delusional/'irls' (i'm just not the right person to be around if you deal with that)
 * you think liking edgy things automatically makes you an evil person
 <br/>
+<br/>
+[kin list for the lols](https://wolfkins.straw.page)
 
 ------
 
