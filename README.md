@@ -32,6 +32,19 @@ but if you want to be friends just ask me. if we won't get along i'll politely l
 </br> 
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 
+☣ **people i don't want to be friends with:**
+- MINORS
+- tcc
+- irl/delusionals
+- 'sys' / 'dnt' in name
+- self diagnosers
+- drama/cancel/callout people
+- people in fandoms
+  *sexualizing/watering down characters*
+- you think liking edgy stuff automatically makes you evil
+<br/> if this bothers you i don't care. i'm fine with getting blocked.
+
+
 ![image](https://adriansblinkiecollection.neocities.org/a11.gif) ![image](https://adriansblinkiecollection.neocities.org/a31.gif) ![image](https://adriansblinkiecollection.neocities.org/d28.gif) ![image](https://adriansblinkiecollection.neocities.org/d55.gif) ![image](https://adriansblinkiecollection.neocities.org/v26.gif) ![image](https://adriansblinkiecollection.neocities.org/f10.gif) ![image](https://adriansblinkiecollection.neocities.org/k9.gif) ![image](https://adriansblinkiecollection.neocities.org/24.gif) ![image](https://y2k.neocities.org/blinkiez/tumblr_pc38rqsNC61u4h28eo9_250.gif) ![image](https://64.media.tumblr.com/95dada123b36c1ea217aefa70e847b28/tumblr_pgvansSFu11sy5bqd_250.gifv) 
 
 ![image](https://adriansblinkiecollection.neocities.org/stamps/d41.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/e59.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/a22.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/i9.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/f19.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/i11.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/d10.png) 
