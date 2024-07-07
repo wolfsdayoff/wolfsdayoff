@@ -36,7 +36,7 @@ feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 - MINORS
 - tcc
 - irl/delusionals
-- 'sys' / 'dnt' in name
+- ponytown systems, sorry. just because i'm one doesn't automatically mean i want to be your friend.
 - self diagnosers
 - drama/cancel/callout people
 - people in fandoms
