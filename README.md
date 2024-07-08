@@ -35,7 +35,7 @@ feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 ☣ **people i don't want to be friends with:**
 - MINORS
 - tcc
-- irl/delusionals
+- irl/delusionals, including anti-recovery of any sort.
 - ponytown systems, sorry. just because i'm one doesn't automatically mean i want to be your friend.
 - self diagnosers
 - drama/cancel/callout people
