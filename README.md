@@ -28,7 +28,7 @@ character(s) i'm sitting with DOESN'T MEAN SHIPS!
 </br>
 i'm antisocial so i likely won't approach first and i suck at talking to people who aren't already my friends.
 </br>
-but if you want to be friends just ask me. if we won't get along i'll politely let you know.
+but if you want to be friends just ask me. i like talking to people who genuinely want to.. i 100% match energy.
 </br> 
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 
