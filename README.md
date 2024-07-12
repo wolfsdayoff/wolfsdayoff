@@ -30,7 +30,7 @@ i'm antisocial so i likely won't approach first and i suck at talking to people 
 </br>
 but if you want to be friends just ask me. i 100% match energy.
 </br> 
-genuinely hmu if you're a freak and a weirdo and you like offputting guys.
+genuinely hmu if you're a freak and a weirdo and you like offputting guys. ask for my disc.
 </br> 
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 
