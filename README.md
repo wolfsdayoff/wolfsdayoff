@@ -7,7 +7,9 @@
 
 ------
 
-call me whatever, idc.
+call me whatever, idc. byi is below.
+
+
 this is a ponytown specific page, my main info page is [here](https://w0lf.straw.page).
 <br/>
 if you whisper to me i MAY not get back to you so feel free to leave something on my guestbook.
