@@ -35,7 +35,8 @@ genuinely hmu if you're a freak and a weirdo and you like offputting guys. ask f
 </br> 
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 
-☣ **people i don't want to be friends with:**
+☣ **BEFORE YOU INT:**
+here's some stuff i avoid or hide. i don't unhide.
 - MINORS
 - tcc
 - irl/delusionals, including anti-recovery of any sort.
