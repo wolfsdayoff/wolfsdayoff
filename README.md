@@ -31,10 +31,10 @@ character(s) i'm sitting with DOESN'T MEAN SHIPS!
 </br>
 i'm antisocial so i likely won't approach first and i suck at talking to people who aren't already my friends.
 </br>
-but if you want to be friends just ask me. i 100% match energy.
+but if you want to be friends just ask me. genuinely hmu if you're a freak and a weirdo and you like offputting guys. ask for my disc.
 </br> 
-genuinely hmu if you're a freak and a weirdo and you like offputting guys. ask for my disc.
-</br> 
+i use slurs i can reclaim but not too often. i appreciate tone tags, but let me know if you need them because i don't use them by default.
+<br> 
 feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 
 ☣ **people i don't want to be friends with:**
