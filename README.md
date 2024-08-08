@@ -6,9 +6,9 @@
 <p align="center">a painful reminder and a terrible dream.
 
 ------
-
-call me whatever, idc. byi is below.
-
+ ![](https://komarev.com/ghpvc/?username=wolfsdayoff&color=yellowgreen&style=for-the-badge) <br/>
+ 
+call me whatever, idc. byi is below. 
 
 this is a ponytown specific page, my main info page is [here](https://w0lf.straw.page).
 <br/>
