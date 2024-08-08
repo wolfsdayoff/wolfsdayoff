@@ -6,7 +6,6 @@
 <p align="center">a painful reminder and a terrible dream.
 
 ------
- ![](https://komarev.com/ghpvc/?username=wolfsdayoff&color=yellowgreen&style=for-the-badge) <br/>
  
 call me whatever, idc. byi is below. 
 
@@ -56,3 +55,6 @@ feel free to cuddle, hide behind, kiss, etc. it's just pixels so i don't care.
 ![image](https://adriansblinkiecollection.neocities.org/a11.gif) ![image](https://adriansblinkiecollection.neocities.org/a31.gif) ![image](https://adriansblinkiecollection.neocities.org/d28.gif) ![image](https://adriansblinkiecollection.neocities.org/d55.gif) ![image](https://adriansblinkiecollection.neocities.org/v26.gif) ![image](https://adriansblinkiecollection.neocities.org/f10.gif) ![image](https://adriansblinkiecollection.neocities.org/k9.gif) ![image](https://adriansblinkiecollection.neocities.org/24.gif) ![image](https://y2k.neocities.org/blinkiez/tumblr_pc38rqsNC61u4h28eo9_250.gif) ![image](https://64.media.tumblr.com/95dada123b36c1ea217aefa70e847b28/tumblr_pgvansSFu11sy5bqd_250.gifv) 
 
 ![image](https://adriansblinkiecollection.neocities.org/stamps/d41.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/e59.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/a22.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/i9.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/f19.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/i11.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/d10.png) 
+<br>
+<br>
+![](https://komarev.com/ghpvc/?username=wolfsdayoff&color=yellowgreen&style=for-the-badge) <br/>
