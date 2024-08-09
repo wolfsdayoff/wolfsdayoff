@@ -13,8 +13,6 @@ this is a ponytown specific page, my main info page is [here](https://w0lf.straw
 <br/>
 if you whisper to me i MAY not get back to you so feel free to leave something on my guestbook.
 <br/>
-my accounts are on my strawpage directory.
-<br/>
 
 [kin list for the lols](https://wolfkins.straw.page)
 </br>
