@@ -1,11 +1,6 @@
-<p align="center">so beautiful, the space between
-
 <p align="center">
-<img src="https://i.imgur.com/t4ksVXn.png" width="210" height="340" border="10"/>
-
-<p align="center">a painful reminder and a terrible dream.
-
-------
+  <img src="https://i.imgur.com/ktSb5EO.png" width=300 />
+</p>
  
 call me whatever, idc. byi is below. 
 
