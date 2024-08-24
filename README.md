@@ -9,7 +9,6 @@ this is a ponytown specific page, my main info page is [here](https://w0lf.straw
 if you whisper to me i MAY not get back to you so feel free to leave something on my guestbook.
 <br/>
 
-[kin list for the lols](https://wolfkins.straw.page)
 </br>
 
 ------
