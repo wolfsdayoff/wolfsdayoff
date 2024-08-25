@@ -19,22 +19,17 @@ if you whisper to me i MAY not get back to you so, if you would like a reply, le
 
 ------
 
-<p align="left">
-<img src="https://enchantments.carrd.co/assets/images/gallery20/da85e56d.gif?v=976bb919" width="40" height="55" border="10"/>
-
+***☣ stuff to note***
+<br/>
 - you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance or two siblings.
-</br>
 - character(s) i'm sitting with DOESN'T MEAN SHIPS!
-</br>
 - i'm antisocial so i likely won't approach first and i suck at talking to people who aren't already my friends.
-</br>
 - but if you want to be friends just ask me. genuinely hmu if you're a freak and a weirdo and you like offputting guys. ask for my discord.
-</br> 
 - i use slurs i can reclaim but not too often. i appreciate tone tags, but let me know if you need them because i don't use them by default.
-<br> 
 - cuddle, hide behind, kiss, etc. is fine with me. it's just pixels so i don't care. if my pony is a character you like especially, feel free to, i think it's cute.
+<br/>
 
-☣ **people i don't want to be friends with:**
+***☣ people i don't want to be friends with:***
 </br> here's some stuff i avoid or hide. i also hide freely. i don't unhide.
 - MINORS
 - tcc
