@@ -5,19 +5,22 @@
 </p>
 <br/>
 
+<p align="center" class="large-text"> 
+wolf/logan
+<img src="https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
+22
+<img src="https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
+it/he
+<br/>
 <p align="center">
 <img src="https://i.imgur.com/Dtn76e0.png" width="600">
-<br/>
 
-call me whatever, idc. byi is below. 
-this is a ponytown specific page, my main info page is [here](https://w0lf.straw.page).
-<br/>
+ 
+ this is a ponytown specific page, my main info page is [here](https://w0lf.straw.page).
+ <br/>
 if you whisper to me i MAY not get back to you so, if you would like a reply, leave something on my guestbook.
 
 <br/>
-
-<p align="center">
-<img src="https://i.imgur.com/Dtn76e0.png" width="600">
 
 ***☣ stuff to note***
 <br/>
