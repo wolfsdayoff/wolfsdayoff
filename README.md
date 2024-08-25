@@ -4,8 +4,9 @@
 
 </p>
 <br/>
-  
--------
+
+<p align="center">
+<img src="https://i.imgur.com/Dtn76e0.png" width="600">
 <br/>
 
 call me whatever, idc. byi is below. 
@@ -15,7 +16,8 @@ if you whisper to me i MAY not get back to you so, if you would like a reply, le
 
 <br/>
 
-------
+<p align="center">
+<img src="https://i.imgur.com/Dtn76e0.png" width="600">
 
 ***☣ stuff to note***
 <br/>
