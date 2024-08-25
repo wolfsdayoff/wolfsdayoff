@@ -1,12 +1,18 @@
 <p align="center">
-  <img src="https://i.imgur.com/KXU0BX0.png" width=300 />
+<a href="https://twitter.com/francishsie/status/1143944021238145024?s=12" target="_blank">
+<img src="https://i.imgur.com/COsCMys.png" width="400">
+
 </p>
- 
+<br/>
+  
+-------
+  
+  <br/>
 call me whatever, idc. byi is below. 
 
 this is a ponytown specific page, my main info page is [here](https://w0lf.straw.page).
 <br/>
-if you whisper to me i MAY not get back to you so feel free to leave something on my guestbook.
+if you whisper to me i MAY not get back to you so, if you would like a reply, leave something on my guestbook.
 <br/>
 
 </br>
