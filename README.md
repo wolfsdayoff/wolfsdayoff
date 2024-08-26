@@ -24,6 +24,7 @@ if you whisper to me i MAY not get back to you so, if you would like a reply, le
 
 ***☣ stuff to note***
 <br/>
+- i like sitting with strangers and not saying anything.
 - you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance or two siblings.
 - character(s) i'm sitting with DOESN'T MEAN SHIPS!
 - i'm antisocial so i likely won't approach first and i suck at talking to people who aren't already my friends.
