@@ -26,7 +26,7 @@ if you whisper to me i MAY not get back to you so, if you would like a reply, le
 <br/>
 - i like sitting with strangers and not saying anything.
 - i'm mostly semiverbal in public settings. yes this includes ponytown, sigh.
-- int please if we share interests and you want an offputting dogbeast to haunt you forever.
+- int please if we share interests and you want an offputting dogbeast to haunt you forever. i have disorders that WILL affect the way i interact with you.
 - you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance or two siblings.
 - character(s) i'm sitting with DOESN'T MEAN SHIPS!
 - i use slurs i can reclaim but not too often. i appreciate tone tags, but let me know if you need them because i don't use them by default.
