@@ -25,10 +25,10 @@ if you whisper to me i MAY not get back to you so, if you would like a reply, le
 ***☣ stuff to note***
 <br/>
 - i like sitting with strangers and not saying anything.
+- i'm mostly semiverbal in public settings. yes this includes ponytown, sigh.
+- int please if we share interests and you want an offputting dogbeast to haunt you forever.
 - you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance or two siblings.
 - character(s) i'm sitting with DOESN'T MEAN SHIPS!
-- i'm antisocial so i likely won't approach first and i suck at talking to people who aren't already my friends.
-- but if you want to be friends just ask me. genuinely hmu if you're a freak and a weirdo and you like offputting guys. ask for my discord.
 - i use slurs i can reclaim but not too often. i appreciate tone tags, but let me know if you need them because i don't use them by default.
 - cuddle, hide behind, kiss, etc. is fine with me. it's just pixels so i don't care. if my pony is a character you like especially, feel free to, i think it's cute.
 <br/>
