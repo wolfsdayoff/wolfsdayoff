@@ -12,7 +12,6 @@ wolf/logan
 <img src="https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
 it/he
 <br/>
-<p align="center"> usually the weird stoner older brother, or angry dad friend.
 <p align="center">
 <img src="https://i.imgur.com/Dtn76e0.png" width="600">
 
