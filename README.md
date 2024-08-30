@@ -37,8 +37,8 @@ if you whisper to me i MAY not get back to you so, if you would like a reply, le
 - MINORS
 - tcc
 - irl/delusionals, including anti-recovery of any sort.
-- ponytown systems, sorry. just because i'm one doesn't automatically mean i want to be your friend.
-- self diagnosers
+- ponytown systems, sorry. just because i'm one doesn't automatically mean i want to be your friend. 
+- self diagnosers including endo systems. holy fuck, this shit is so harmful to people with actual disorders.
 - drama/cancel/callout people
 - people in fandoms
   *sexualizing/watering down characters*
