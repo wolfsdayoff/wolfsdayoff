@@ -1,56 +1,22 @@
 <p align="center">
-<img src="https://assets1.ignimgs.com/2019/09/05/house-of-x-4-1567718589925_160w.png?width=1280" width="400">
-
+<b> WOLF/LOGAN
+ <img src= "https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
+  22
+ <img src= "https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
+ IT/HE
 </p>
-<br/>
 
-<p align="center" class="large-text"> 
-wolf/logan
-<img src="https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
-22
-<img src="https://gifcity.carrd.co/assets/images/gallery12/099389b6.gif?v=dc8076d6">
-it/he
+<p align="center">
+this is a ponytown specific page. <br> my main page can be found
+<a href="https://w0lf.straw.page">here.</a> my interests and stuff are listed there too.
+</p>
+
+<p align="center">
+<img src="https://i.imgur.com/B5c1Ox1.png">
 <br/>
 <p align="center">
-<img src="https://i.imgur.com/Dtn76e0.png" width="600">
+<img src="https://gifcity.carrd.co/assets/images/gallery01/d35af779.gif?v=dc8076d6"> BYI <br> i like to sit near people and not say anything. <br> i'm mostly semiverbal in public settings, most sociable when with people i'm close with. <br> feel free to interact, i don't have many friends and struggle to make them, i'm introverted as hell, so just keep this in mind. <br> if you wanna be buddies, i'm mostly on discord. i only hand it out if i think we'll click though, so let me know. <br> i'm disordered and very mentally ill, you'll figure it out if you're a friend. <br> i hide freely, and i don't unhide. if i do something that bothers you just hide me, it doesn't bother me. <br> i use slurs i can reclaim but not often. <br> i appreciate tonetags, but i don't use them by default. if you need them, let me know.
+</p>
 
- 
- this is a ponytown specific page, my main info page is [here](https://w0lf.straw.page).
- <br/>
-if you whisper to me i MAY not get back to you so, if you would like a reply, leave something on my guestbook.
-
-<br/>
-
-***☣ stuff to note***
-<br/>
-- i like sitting with strangers and not saying anything.
-- i'm mostly semiverbal in public settings. yes this includes ponytown, sigh.
-- int please if we share interests and you want an offputting dogbeast to haunt you forever. i have disorders that WILL affect the way i interact with you.
-- you'll see me chilling near docks most of the time alone, or sitting with friends/my fiance or two siblings.
-- character(s) i'm sitting with DOESN'T MEAN SHIPS!
-- i use slurs i can reclaim but not too often. i appreciate tone tags, but let me know if you need them because i don't use them by default.
-- cuddle, hide behind, kiss, etc. is fine with me. it's just pixels so i don't care. if my pony is a character you like especially, feel free to, i think it's cute.
-<br/>
-
-***☣ people i don't want to be friends with:***
-</br> here's some stuff i avoid or hide. i also hide freely. i don't unhide.
-- MINORS
-- tcc
-- irl/delusionals, including anti-recovery of any sort.
-- ponytown systems, sorry. just because i'm one doesn't automatically mean i want to be your friend. 
-- self diagnosers including endo systems. holy fuck, this shit is so harmful to people with actual disorders.
-- drama/cancel/callout people
-- people in fandoms
-  *sexualizing/watering down characters*
-- you think liking edgy stuff automatically makes you evil
-<br/> if this bothers you i don't care. i'm fine with getting blocked.
-<br/>
-<br/>
-
-
-![image](https://adriansblinkiecollection.neocities.org/a11.gif) ![image](https://adriansblinkiecollection.neocities.org/a31.gif) ![image](https://adriansblinkiecollection.neocities.org/d28.gif) ![image](https://adriansblinkiecollection.neocities.org/d55.gif) ![image](https://adriansblinkiecollection.neocities.org/v26.gif) ![image](https://adriansblinkiecollection.neocities.org/f10.gif) ![image](https://adriansblinkiecollection.neocities.org/k9.gif) ![image](https://adriansblinkiecollection.neocities.org/24.gif) ![image](https://y2k.neocities.org/blinkiez/tumblr_pc38rqsNC61u4h28eo9_250.gif) ![image](https://64.media.tumblr.com/95dada123b36c1ea217aefa70e847b28/tumblr_pgvansSFu11sy5bqd_250.gifv) 
-
-![image](https://adriansblinkiecollection.neocities.org/stamps/d41.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/e59.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/a22.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/i9.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/f19.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/i11.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/d10.png) 
-<br>
-<br>
-![](https://komarev.com/ghpvc/?username=wolfsdayoff&color=yellowgreen&style=for-the-badge) <br/>
+<p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery01/d35af779.gif?v=dc8076d6"> INT <br> i'm perfectly okay with cuddling, booping, kissing, etc. it's just pixels so i don't care. <br> if my pony is a character you like and you want to cuddle it, feel free to, in fact i think it's very sweet. 
